@@ -14,7 +14,7 @@
 - 3 TBSP vegetable oil
 - 3 TBSP butter
 - 1/2 tsp Persian rice spice
-- 2 TBSP cubed butter, for the top of the rice!
+- 2 TBSP cubed butter, for the top of the rice
 
 
 
